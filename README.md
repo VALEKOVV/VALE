@@ -13,7 +13,9 @@ so uhh there some info about me ithink
 > CALL ME VALEKOV, or deimos ;-)
 
 > i can be very yapp dude or the dumbest chud u ever meettt
+
 > im a Fictionkin, and a yumeshipper! im both kin and yume with deimos, selflove u could say xd
+
 > i dont really really like double tht much so,,, dni if u r yume w deimos in romantic way!!!
 
 > no png or cool pic yet, i dont see any deimos png and im too lazy to make it myself lmao
