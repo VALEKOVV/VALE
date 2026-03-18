@@ -20,3 +20,4 @@ so uhh there some info about me ithink
 
 > no png or cool pic yet, i dont see any deimos png and im too lazy to make it myself lmao
 pls go to my strawpage for more info and stuff ykyk
+https://valekov.straw.page/
